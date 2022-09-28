@@ -12,8 +12,11 @@ I am currently working on projects about Data Science, reach me out if you want 
 
 
 ### 📫 How to reach me:
+
 -Email: federicalupo1129@gmail.com
+
 -Instutional email: federica.lupo@studenti.polito.it
+
 -Linkedin: https://www.linkedin.com/in/federicalupo11/
 
 
